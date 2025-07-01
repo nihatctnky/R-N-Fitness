@@ -8,6 +8,7 @@
 
  ## Ekran Gif
  
+![Ekran Kaydı 2025-07-01 23 54 09 (1)](https://github.com/user-attachments/assets/975cf13f-2dff-4353-81d6-0736ff0bafd4)
 
 
 
